@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **imvedant22@gmail.com**
 
-- 📄 Know about my experiences [[REsume](https://bit.ly/MyyResumee))
+- 📄 Know about my experiences [Resume](https://bit.ly/MyyResumee)
 
 - ⚡ Fun fact **im introvert:)**
 

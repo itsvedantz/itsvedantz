@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **imvedant22@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1S953I7Kx3i8gA7RNxzbhDk14LXwzZuau/view](https://drive.google.com/file/d/1S953I7Kx3i8gA7RNxzbhDk14LXwzZuau/view)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1S953I7Kx3i8gA7RNxzbhDk14LXwzZuau/view](https://drive.google.com/file/d/1S953I7Kx3i8gA7RNxzbhDk14LXwzZuau/view](https://bit.ly/MyyResumee))
 
 - ⚡ Fun fact **im introvert:)**
 
